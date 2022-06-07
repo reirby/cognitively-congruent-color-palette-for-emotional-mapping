@@ -1,0 +1,1 @@
+# cognitively-congruent-color-palette-for-emotional-mapping
